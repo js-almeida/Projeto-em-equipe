@@ -1,1 +1,0 @@
-A "Carta do Major Bach", amplamente conhecida no meio militar, é um famoso texto sobre Liderança escrito em 1917 pelo instrutor norte-americano Major C. A. Bach, durante a Primeira Guerra Mundial. O texto define a liderança militar como a mais desinteressada e destaca que o bom líder inspira pelo exemplo, dignidade e respeito à sua tropa.
